@@ -1,0 +1,1 @@
+# minha-loja-2.0
